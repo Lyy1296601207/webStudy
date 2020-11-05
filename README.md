@@ -1,2 +1,0 @@
-# webStudy
-lyy's webStudy
